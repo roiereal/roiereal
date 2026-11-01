@@ -11,6 +11,7 @@
   
 <p align="center">  <img src="https://pbs.twimg.com/media/HMkqeBIXcAIKzxd?format=jpg&name=large" width="700" />   
 <p align="center"> 
+<p align="center"> $\color{#ADD8E6}{\text{guapoduo enjoyer + aldoier platonic couple}}$
 
 
  
