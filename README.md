@@ -3,7 +3,7 @@
   
 <p align="center">  <img src="https://64.media.tumblr.com/564d2262ecaf1e7f718f74f41cd86ff7/c880337b05388a5a-90/s400x600/3f72f7bf40d712eba97e1a942475c57b32f8f4ab.gifv" width="900" />   
 
-<p align="center"> $\color{#ADD8E6}{\text{guapoduo enjoyer + aldoier platonic couple}}$
+<p align="center"> $\color{#ADD8E6}{\text{𓊆ㅤㅤguapoduo enjoyer + aldoier platonic dynamicㅤㅤ𓊇}}$  
 
 <p align="center">  <img src="https://pbs.twimg.com/media/HMkqeBIXcAIKzxd?format=jpg&name=large" width="700" />   
 <p align="center"> 
