@@ -5,7 +5,7 @@
 
 <p align="center"> $\color{#ADD8E6}{\text{𓊆ㅤguapoduo enjoyer + platonic aldoierㅤ𓊇}}$  
 
-<p align="center">  <img src="https://pbs.twimg.com/media/Gu8s5PcX0AAmDNH?format=jpg&name=large" width="700" />   
+<p align="center">  <img src="https://pbs.twimg.com/media/Gu8s5PcX0AAmDNH?format=jpg&name=large" width="900" />   
 <p align="center"> 
 
 
